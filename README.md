@@ -19,5 +19,5 @@ Untuk akses ke Artery:
 ----------------------------------------
 
 
----------------------------------------
-If KaMuth reading this, this is why I cant finish the propo now bcs im busy with this server thingy. Im sorry and thanks!
+
+kontak taufan@hmti-unsoed.org untuk info lbh lanjut
